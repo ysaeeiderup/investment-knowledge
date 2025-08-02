@@ -213,8 +213,6 @@
 
 微信公众号地址：[金渐成微信公众号历史文章](https://mp.weixin.qq.com/mp/appmsgalbum?__biz=Mzg2NTkwNTM4MA==&action=getalbum&album_id=3896715541905326087&scene=173&subscene=&sessionid=svr_f5a56fc1e02&enterid=1742266117&from_msgid=2247483813&from_itemidx=1&count=3&nolastread=1#wechat_redirect)
 
-按照时间顺序收录，注意每一篇的时间，结合当时的具体行情进行分析归纳。
-
 # 2024年
 
 ## 2024年8月
